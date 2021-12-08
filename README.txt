@@ -1,4 +1,4 @@
-Hello, my name is Angie B. CervanteS. Here you will find projects I have worked on.
+Hello, my name is Angie B. Cervantes. Here you will find projects I have worked on.
 
 
 Portfolio Website: 
